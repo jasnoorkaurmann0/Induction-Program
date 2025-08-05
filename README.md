@@ -1,7 +1,7 @@
 # Induction-Program
 Name : Jasnoor Kaur Mann
 Father's name : Sukhdeep Singh
-Barnch : ECE
+Branch : ECE
 Registration number : 25107577
 Mobile number: 9988351015
 Email : mannekam271@gmail.com
