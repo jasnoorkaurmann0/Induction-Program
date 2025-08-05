@@ -14,3 +14,4 @@ Email : mannekam271@gmail.com
 ## 01:30 pm 
 #### Following the formal welcome event, students proceeded to their respective departments to meet the faculty, tour the laboratories, attend orientation sessions, and explore available facilities.
 # Day 2  01 August 2025 
+## 9am to 11am 
