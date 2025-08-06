@@ -32,3 +32,6 @@ Email : mannekam271@gmail.com
 ## 10:45am to 12pm
 Priya Darshni ma'am took a really nice session where she talked about simple things we face every day but usually don’t think much about. She spoke about trust, happiness and excitement. She explained how happiness and excitement may feel the same, but they are different  . Excitement doesn’t last long  while happiness stays for a longer time .She also shared something very interesting about the self and the body. At first, they sound like the same thing but they are not. She gave examples like – food is for the body, respect is for the self ; clothes are for the body, but confidence is for the self.She ended the session by giving us some fun and thoughtful assignments to work on . 
 ## 01:30pm to 02:30pm 
+#### We had an English lecture and Aastik Sir kept it simple. He asked us to answer a few questions in our notebooks like describing ourselves ,why we chose this college , and why we picked our specific branches. Then he asked us to write a letter too.It was a simple session but pretty fun.
+## 02:30pm to 03:30pm
+#### We had a lecture on P2P,  where the teachers introduced us to the basics of it .
