@@ -25,4 +25,10 @@ Email : mannekam271@gmail.com
 # Day 3 ( 04 August 2025 ) 
 ## 08:30am to 09:00am 
 #### Harpreet ma'am talked to us about scholarship opportunities and encouraged us to sign up on Buddy4Study. She explained how the platform regularly shares updates on scholarships, making it easier for us to stay informed and apply on time   
-## 09:00am to 
+## 09:00am to 10:30am
+#### The Causmic team came up and shared how the group was started by their seniors. They introduced us to their official social media pages  where they post exciting content and reels to keep students engaged. They encouraged us to join and luckily alot of students showed interest and raised their hands to be part of it. They also introduced us to GitHub, explaining how it can be useful for future projects. Then, they asked us to do one activity and also helping everyone create accounts and showing us how to use the platform step by step.
+## 10:30am to 10:45am 
+#### Randhir Sir came for a bit and gave us an  intro to motorsports. He talked about car wheels, asked us some fun questions, and shared why motorsports is something every engineer should learn about  . 
+## 10:45am to 12pm
+Priya Darshni ma'am took a really nice session where she talked about simple things we face every day but usually don’t think much about. She spoke about trust, happiness and excitement. She explained how happiness and excitement may feel the same, but they are different  . Excitement doesn’t last long  while happiness stays for a longer time .She also shared something very interesting about the self and the body. At first, they sound like the same thing but they are not. She gave examples like – food is for the body, respect is for the self ; clothes are for the body, but confidence is for the self.She ended the session by giving us some fun and thoughtful assignments to work on . 
+## 01:30pm to 02:30pm 
