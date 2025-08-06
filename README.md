@@ -13,7 +13,7 @@ Email : mannekam271@gmail.com
 #### Dr. Harpreet Kaur Garewal, HOD of Applied Sciences, inaugurated the session with a warm welcome and an inspiring message, encouraging students to stay motivated and focused in their academic journey. Dr. Sehijpal Singh, Principal of GNDEC, addressed the audience by highlighting the institution's academic strengths and emphasizing the importance of embracing opportunities during college life.ThofChief Guest, S. Maheshinder Singh, former Cabinet Minister and trustee of the Nankana Sahib Education Trust, delivered an inspiring speech. He spoke about the values of discipline and purpose, while also reflecting on the founding vision of the college that continues to guide its growth and legacy.
 ## 01:30 pm 
 #### Following the formal welcome event, students proceeded to their respective departments to meet the faculty, tour the laboratories, attend orientation sessions, and explore available facilities.
-# Day 2  01 August 2025 
+# Day 2 ( 01 August 2025 ) 
 ## 9am to 11am 
 #### Priya Darshni ma'am took a long but great session on Universal Human Values . She talked about what it means to live a happy and fulfilling life. She explained the ideas of happiness and contentment, and how they affect our daily actions and decisions. The session gave us a new way to think about true happiness  .Ma'am also shared real-life examples, which made the session more interesting and easy to relate to.
 ## 11am to 12:30pm
@@ -22,3 +22,7 @@ Email : mannekam271@gmail.com
 #### We had our English test. it was pretty basic and went really well.
 ## 02:30pm to 03:30pm 
 #### We had our Maths test too . it was super easy and mostly stuff was from 8th to 12th grade. 
+# Day 3 ( 04 August 2025 ) 
+## 08:30am to 09:00am 
+#### Harpreet ma'am talked to us about scholarship opportunities and encouraged us to sign up on Buddy4Study. She explained how the platform regularly shares updates on scholarships, making it easier for us to stay informed and apply on time   
+## 09:00am to 
