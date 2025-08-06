@@ -15,3 +15,10 @@ Email : mannekam271@gmail.com
 #### Following the formal welcome event, students proceeded to their respective departments to meet the faculty, tour the laboratories, attend orientation sessions, and explore available facilities.
 # Day 2  01 August 2025 
 ## 9am to 11am 
+#### Priya Darshni ma'am took a long but great session on Universal Human Values . She talked about what it means to live a happy and fulfilling life. She explained the ideas of happiness and contentment, and how they affect our daily actions and decisions. The session gave us a new way to think about true happiness  .Ma'am also shared real-life examples, which made the session more interesting and easy to relate to.
+## 11am to 12:30pm
+#### We had a lecture by Dr. Arvind Dhingra , and it was quite interactive. He called 7 boys and 7 girls on stage to play a fun team strategy game. It was really entertaining to watch. After that,  we had a break from 12:30pm to 1:30pm.
+## 01:30pm to 02:30pm 
+#### We had our English test. it was pretty basic and went really well.
+## 02:30pm to 03:30pm 
+#### We had our Maths test too . it was super easy and mostly stuff was from 8th to 12th grade. 
