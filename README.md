@@ -19,9 +19,7 @@ Email : mannekam271@gmail.com
 ## 11am to 12:30pm
 #### We had a lecture by Dr. Arvind Dhingra , and it was quite interactive. He called 7 boys and 7 girls on stage to play a fun team strategy game. It was really entertaining to watch. 
 # Day 3 ( 04 August 2025 ) 
-## 08:30am to 09:00am 
-#### Harpreet ma'am talked to us about scholarship opportunities and encouraged us to sign up on Buddy4Study. She explained how the platform regularly shares updates on scholarships, making it easier for us to stay informed and apply on time   
-## 09:00am to 10:30am
+## 08:30am to 10:30am
 #### The Causmic team came up and shared how the group was started by their seniors. They introduced us to their official social media pages  where they post exciting content and reels to keep students engaged. They encouraged us to join and luckily alot of students showed interest and raised their hands to be part of it. They also introduced us to GitHub, explaining how it can be useful for future projects. Then, they asked us to do one activity and also helping everyone create accounts and showing us how to use the platform step by step.
 ## 10:30am to 10:45am 
 #### Randhir Sir came for a bit and gave us an  intro to motorsports. He talked about car wheels, asked us some fun questions, and shared why motorsports is something every engineer should learn about  . 
