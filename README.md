@@ -17,11 +17,7 @@ Email : mannekam271@gmail.com
 ## 9am to 11am 
 #### Priya Darshni ma'am took a long but great session on Universal Human Values . She talked about what it means to live a happy and fulfilling life. She explained the ideas of happiness and contentment, and how they affect our daily actions and decisions. The session gave us a new way to think about true happiness  .Ma'am also shared real-life examples, which made the session more interesting and easy to relate to.
 ## 11am to 12:30pm
-#### We had a lecture by Dr. Arvind Dhingra , and it was quite interactive. He called 7 boys and 7 girls on stage to play a fun team strategy game. It was really entertaining to watch. After that,  we had a break from 12:30pm to 1:30pm.
-## 01:30pm to 02:30pm 
-#### We had our English test. it was pretty basic and went really well.
-## 02:30pm to 03:30pm 
-#### We had our Maths test too . it was super easy and mostly stuff was from 8th to 12th grade. 
+#### We had a lecture by Dr. Arvind Dhingra , and it was quite interactive. He called 7 boys and 7 girls on stage to play a fun team strategy game. It was really entertaining to watch. 
 # Day 3 ( 04 August 2025 ) 
 ## 08:30am to 09:00am 
 #### Harpreet ma'am talked to us about scholarship opportunities and encouraged us to sign up on Buddy4Study. She explained how the platform regularly shares updates on scholarships, making it easier for us to stay informed and apply on time   
@@ -31,7 +27,4 @@ Email : mannekam271@gmail.com
 #### Randhir Sir came for a bit and gave us an  intro to motorsports. He talked about car wheels, asked us some fun questions, and shared why motorsports is something every engineer should learn about  . 
 ## 10:45am to 12pm
 Priya Darshni ma'am took a really nice session where she talked about simple things we face every day but usually don’t think much about. She spoke about trust, happiness and excitement. She explained how happiness and excitement may feel the same, but they are different  . Excitement doesn’t last long  while happiness stays for a longer time .She also shared something very interesting about the self and the body. At first, they sound like the same thing but they are not. She gave examples like – food is for the body, respect is for the self ; clothes are for the body, but confidence is for the self.She ended the session by giving us some fun and thoughtful assignments to work on . 
-## 01:30pm to 02:30pm 
-#### We had an English lecture and Aastik Sir kept it simple. He asked us to answer a few questions in our notebooks like describing ourselves ,why we chose this college , and why we picked our specific branches. Then he asked us to write a letter too.It was a simple session but pretty fun.
-## 02:30pm to 03:30pm
-#### We had a lecture on P2P,  where the teachers introduced us to the basics of it .
+
